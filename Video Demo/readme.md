@@ -1,1 +1,1 @@
-Visual conceptualisation of anaysis
+Visual conceptualisation of analysis
